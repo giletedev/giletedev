@@ -111,3 +111,10 @@ I'm interested in **internships and freelance projects**, with availability coor
 [Explorar repositórios públicos →](https://github.com/giletedev?tab=repositories)
 
 </div>
+
+
+## Contato
+
+Para oportunidades de estágio e projetos freelance:
+
+**[delimaguilherme98@gmail.com](mailto:delimaguilherme98@gmail.com)**
